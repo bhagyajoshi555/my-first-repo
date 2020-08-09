@@ -1,4 +1,4 @@
-# Sean Kross
+# Bhagyashree Joshi
 
 ### Geography
 
